@@ -1,0 +1,1 @@
+# staging-partnershub.deriv.com
